@@ -20,6 +20,6 @@
 - In my spare time, I enjoy playing video games which inspired me to be curious about programming in the first place! :video_game:
 - I would love to travel in the future to places like Japan or France :airplane: :tokyo_tower:
 
-Let's Keep In Touch!
-[Linkdin](https://www.linkedin.com/in/kelly-raines/) 
-Email <kraines5@asu.edu>
+Let's Keep In Touch!<br>
+[Linkdin](https://www.linkedin.com/in/kelly-raines/)<br>
+Email: <kraines5@asu.edu>
