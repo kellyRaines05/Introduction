@@ -21,5 +21,5 @@
 - I would love to travel in the future to places like Japan or France :airplane: :tokyo_tower:
 
 Let's Keep In Touch!<br>
-[LinkdIn](https://www.linkedin.com/in/kelly-raines/)<br>
+[My LinkdIn](https://www.linkedin.com/in/kelly-raines/)<br>
 Email: <kraines5@asu.edu>
